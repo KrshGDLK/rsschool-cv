@@ -25,5 +25,3 @@ ___
 [VK](https://vk.com/gogalap)
 [Inst](https://www.instagram.com/krsh_gdlk/?hl=ru)
 [YouTube](https://www.youtube.com/c/GMProdGoldMemBer)
-[Telegram](@Krsh Gdlk)
-___
